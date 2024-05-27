@@ -16,15 +16,15 @@ No ByteBank, acreditamos que gerenciar suas finanças não deve ser complicado n
 
 -Serviços Gratuitos: No ByteBank, acreditamos que você deve poder acessar seus fundos e gerenciar suas finanças sem se preocupar com taxas adicionais. Oferecemos uma ampla gama de serviços gratuitos, incluindo transferências bancárias, pagamentos de contas, consultas de saldo e muito mais.
 
-Cartão de Crédito e Débito: Com o ByteBank, você recebe um cartão de crédito e débito totalmente gratuito. Use-o para fazer compras em lojas físicas e online, bem como para sacar dinheiro em caixas eletrônicos em todo o mundo.
+-Cartão de Crédito e Débito: Com o ByteBank, você recebe um cartão de crédito e débito totalmente gratuito. Use-o para fazer compras em lojas físicas e online, bem como para sacar dinheiro em caixas eletrônicos em todo o mundo.
 
-Saques Facilitados: Queremos tornar os saques de dinheiro o mais conveniente possível para você. Com a rede de caixas eletrônicos parceiros do ByteBank, você pode sacar dinheiro sem taxas adicionais em milhares de locais em todo o país.
+-Saques Facilitados: Queremos tornar os saques de dinheiro o mais conveniente possível para você. Com a rede de caixas eletrônicos parceiros do ByteBank, você pode sacar dinheiro sem taxas adicionais em milhares de locais em todo o país.
 
-Juros Pequenos: Nosso objetivo é ajudá-lo a economizar dinheiro e evitar altos custos financeiros. Por isso, oferecemos empréstimos e linhas de crédito com taxas de juros competitivas e acessíveis, para que você possa financiar suas necessidades sem comprometer suas economias.
+-Juros Pequenos: Nosso objetivo é ajudá-lo a economizar dinheiro e evitar altos custos financeiros. Por isso, oferecemos empréstimos e linhas de crédito com taxas de juros competitivas e acessíveis, para que você possa financiar suas necessidades sem comprometer suas economias.
 
-Segurança e Proteção: No ByteBank, sua segurança é nossa prioridade. Implementamos as mais recentes tecnologias de segurança para garantir que suas informações financeiras estejam sempre protegidas contra fraudes e ataques cibernéticos.
+-Segurança e Proteção: No ByteBank, sua segurança é nossa prioridade. Implementamos as mais recentes tecnologias de segurança para garantir que suas informações financeiras estejam sempre protegidas contra fraudes e ataques cibernéticos.
 
-Suporte Amigável: Nossa equipe de atendimento ao cliente está disponível para ajudar com todas as suas perguntas e preocupações. Entre em contato conosco por telefone, chat online ou e-mail e teremos o prazer de ajudá-lo.
+-Suporte Amigável: Nossa equipe de atendimento ao cliente está disponível para ajudar com todas as suas perguntas e preocupações. Entre em contato conosco por telefone, chat online ou e-mail e teremos o prazer de ajudá-lo.
 
 
 ## Para quem é o ByteBank?
