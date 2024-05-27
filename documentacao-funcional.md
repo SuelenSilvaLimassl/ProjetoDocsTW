@@ -35,5 +35,5 @@ Para todas as pessoas que buscam liberdade e praticidade na hora de cuidar de su
 
 ## Crie sua conta no ByteBank
 
-Junte-se ao ByteBank hoje e experimente uma nova maneira inteligente de gerenciar suas finanças. [**Como criar sua conta**] (https://www.google.com)
+Junte-se ao ByteBank hoje e experimente uma nova maneira inteligente de gerenciar suas finanças. [**Como criar sua conta**] (URL)
 
